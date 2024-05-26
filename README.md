@@ -4,6 +4,6 @@
 
 - Strogonoff de Carne.
 
-- 
+- Patê de Sardinha.
 
 
